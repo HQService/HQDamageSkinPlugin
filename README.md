@@ -2,7 +2,7 @@
 
 > 자세한 설정 방법은 디스코드 채널에 소개되어 있습니다.
 
-[디스코드](http://zeldahagoshipda.com](https://discord.gg/hUkaca9ZQu)https://discord.gg/hUkaca9ZQu)
+[디스코드](https://discord.gg/hUkaca9ZQu)
 
 > 지원 버전
 
